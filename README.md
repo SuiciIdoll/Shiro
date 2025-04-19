@@ -1,5 +1,3 @@
-# ⠂♡.𝗯ᥲ𝗯ᥡ𝗰ᥲ𝗸𝗲𝘀 ⌣ೇ🎀⠀‎‎‎ ‎⠀
-
 ![Image](https://files.catbox.moe/ym17x0.png)
 
 ![Image](https://files.catbox.moe/bjkzom.png)
